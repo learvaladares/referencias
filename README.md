@@ -1,7 +1,7 @@
 # Referências
-As listas de referências abaixo são um compilado de algumas sugestões de fontes de conteúdo interessantes em diversas mídias. Essas listas serão resumidas em número de itens, como uma forma de me forçar a selecionar apenas os livros, podcasts e outros conteúdos que realmente me adicionaram valor nos últimos tempos, mas também ser uma lista mais acionável para aqueles que se interessarem por essas referências.
+As listas de referências abaixo são um compilado de algumas sugestões de fontes de conteúdo interessantes em diversas mídias. Essas listas serão resumidas em número de itens (5 para cada lista), não apenas como uma forma de me forçar a selecionar apenas os livros, podcasts e outros conteúdos que realmente adicionaram valor nos últimos tempos, mas também para ser uma lista mais acionável para aqueles que se interessarem por essas referências.
 
-É importante notar que essa lista varia ao longo do tempo, e com bastante frequência, à medida que novas ideias vão sendo exploradas e o contexto do dia-a-dia vai se alterando, exigindo que idéias diferentes ofereçam a base para princípios e práticas a serem aplicados.
+É importante notar que essa lista varia ao longo do tempo (e com bastante frequência) à medida que novas idéias vão sendo exploradas e o contexto do dia-a-dia vai se alterando, exigindo que idéias diferentes ofereçam a base para princípios e práticas a serem aplicados.
 
 Todas as referências estão acompanhadas de links relevantes para aquisição ou acesso ao conteúdo listado.
 ## Livros
