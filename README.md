@@ -61,7 +61,7 @@ Cada episódio é uma entrevista com algum especialista, explorando táticas, h�
 
 **[Jocko Podcast](https://open.spotify.com/show/7irxBvxNqGYnUdFo1c2gMc)**
 
-Os episódios iniciais são explorando alguns temas de guerra e sua tradução para a vida e negócios, mas os episódios mais atuais contam com entrevistas num formato parecido com o do Tim Ferriss. O Jocko iniciou esse podcast depois de participar no programa do Tim e do Joe Rogan.
+Os episódios iniciais exploram alguns temas de guerra e sua tradução para a vida e negócios, mas os episódios mais atuais contam com entrevistas num formato parecido com o do Tim Ferriss. O Jocko iniciou esse podcast depois de participar no programa do Tim e do Joe Rogan.
 
 **[Hardcore History](https://open.spotify.com/show/72qiPaoDRf8HkGKEChvG5q)**
 
